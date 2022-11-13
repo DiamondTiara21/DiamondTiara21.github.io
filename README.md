@@ -1,1 +1,1 @@
-# DiamondTiara.ru
+# DiamondTiara.github.io
